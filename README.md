@@ -1,0 +1,2 @@
+# oefening.
+mirac is dik
